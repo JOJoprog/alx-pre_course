@@ -1,1 +1,1 @@
-pray to become a better programming
+pray to become a better programmer
